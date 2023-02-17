@@ -1,8 +1,5 @@
 ### Hi there 👋
 
-<--
-
-Here are some ideas to get you started:
 
 - 🔭 I’m currently pursuing masters in Business Analytics 
 - 👯 I’m looking to collaborate on : 
