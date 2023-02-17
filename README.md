@@ -7,4 +7,3 @@
 - 📫 How to reach me: https://www.linkedin.com/in/aravindmenon15597/
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love trivia
--->
